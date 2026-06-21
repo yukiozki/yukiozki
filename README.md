@@ -4,8 +4,12 @@
 
 <img width="1000" height="64" alt="1000057411" src="https://github.com/user-attachments/assets/cf25cb24-fce3-435c-952a-e6068086bf56" />
 
+<br>
 <div align="center">
-“ɪ'ʟʟ ᴛʜʀᴏᴡ ᴇᴠᴇʀʏᴛʜɪɴɢ ᴀᴡᴀʏ 
+"ᵢ'ₗₗ ₜₕᵣₒw ₑᵥₑᵣyₜₕᵢₙg ₐwₐy 
   
-ᴀɴᴅ ʀᴜɴ ᴛᴏ ʏᴏᴜ.”
-</div>
+ₐₙd ᵣᵤₙ ₜₒ yₒᵤ."
+<div>
+
+
+
