@@ -6,11 +6,11 @@
 
 <br>
 
-$$ \color{#FFFFFF} \normalsize \textsf{“ₛₒ ᵢ dₒₙ’ₜ ₘᵢₙd ₑᵥₑₙ ᵢf ᵢₜ’ₛ ⱼᵤₛₜ fₒᵣ ₐ ₛₑcₒₙd,} $$ 
+$$ \color{#2482B4} \normalsize \textsf{“ₛₒ ᵢ dₒₙ’ₜ ₘᵢₙd ₑᵥₑₙ ᵢf ᵢₜ’ₛ ⱼᵤₛₜ fₒᵣ ₐ ₛₑcₒₙd,} $$ 
 
-$$ \color{#FFFFFF} \Large \textsf{ᵢ wₐₙₜ ₜₒ ₛₑₑ yₒᵤ} $$ 
+$$ \color{#2482B4} \Large \textsf{ᵢ wₐₙₜ ₜₒ ₛₑₑ yₒᵤ} $$ 
 
-$$ \color{#FFFFFF} \Large \textsf{ᵢ’ₘ wᵢₗₗᵢₙg ₜₒ ₜₕᵣₒw ₑᵥₑᵣyₜₕᵢₙg ₐwₐy} $$ 
+$$ \color{#2482B4} \normalsize \textsf{ᵢ’ₘ wᵢₗₗᵢₙg ₜₒ ₜₕᵣₒw ₑᵥₑᵣyₜₕᵢₙg ₐwₐy} $$ 
 
-$$ \color{#FFFFFF} \Large \textsf{ₐₙd ₛₜₐᵣₜ ᵣᵤₙₙᵢₙg ₜₒ yₒᵤ”} $$ 
+$$ \color{#2482B4} \Large \textsf{ₐₙd ₛₜₐᵣₜ ᵣᵤₙₙᵢₙg ₜₒ yₒᵤ”} $$ 
 
