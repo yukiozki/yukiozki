@@ -4,7 +4,6 @@
 
 <h1 align="center">❝ ɪ'ʟʟ ᴅᴏ ᴍʏ ʙᴇꜱᴛ...ꜱɪɴᴄᴇ ɪᴛ'ꜱ ꜰᴏʀ ᴍʏ ᴏᴡɴ ꜱᴀᴋᴇ, ᴛᴏᴏ. ❞</h1>
 
-<img width="1280" height="74" alt="image" src="https://github.com/user-attachments/assets/9c710908-5a29-44b1-93b4-b711409f91b8" />
+<img width="1280" height="74" alt="image" src="https://github.com/user-attachments/assets/9c710908-5a29-44b1-93b4-b711409f91b8" /> <br/>
 
-
-[『 ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ 』](https://pronouns.cc/@yukio_vesta) ᛝ [『 ꜱᴛʀᴀᴡᴘᴀɢᴇ 』](https://yukioio.straw.page/) ᛝ [『 𝕏 』](https://x.com/iikill_server) ᛝ [『 ʀᴏʙʟᴏx 』](https://www.roblox.com/users/3486688881/profile)
+[『 ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ 』](https://pronouns.cc/@yukio_vesta) ᛝ [『 ꜱᴛʀᴀᴡᴘᴀɢᴇ 』](https://yukioio.straw.page/) ᛝ [『 𝕏 』](https://x.com/iikill_server) ᛝ [『 ᴛɪᴋᴛᴏᴋ 』](https://www.tiktok.com/@vesta_yukio) ᛝ [『 ʀᴏʙʟᴏx 』](https://www.roblox.com/users/3486688881/profile)
