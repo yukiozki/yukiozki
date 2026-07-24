@@ -17,3 +17,15 @@
   <a href="https://www.roblox.com/users/3486688881/profile">『 ʀᴏʙʟᴏx 』</a> 
 </p>
   
+<p align="center">
+
+<div align="center">
+<details>
+<summary><b>𝒮𝓅𝑒𝒸𝒾𝒶𝓁 𝑀𝑒𝓃𝓉𝒾𝑜𝓃𝓈 ｡‧⭑.ᐟ</b></summary>
+
+@auraee @JUSTICEANDORDER @Saigemii !! 
+
+(u can also ask if ya wanna be added!)
+
+</details>
+</div>
