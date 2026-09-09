@@ -8,7 +8,7 @@
 
 <p align="center">
   <a href="https://pronouns.cc/@yukio_vesta">『 ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ 』</a> ᛝ
-  <a href="https://yukioio.straw.page/">『 ꜱᴛʀᴀᴡᴘᴀɢᴇ 』</a> 
+  <a href="https://kouojuu.straw.page/">『 ꜱᴛʀᴀᴡᴘᴀɢᴇ 』</a> 
 </p>
 
 <p align="center">
