@@ -14,7 +14,7 @@
 <p align="center">
   <a href="https://x.com/iikill_server">『 𝕏 』</a> ᛝ
   <a href="https://guns.lol/koujouu">『 ɢᴜɴꜱ.ʟᴏʟ 』</a> ᛝ
-  <a href="https://www.roblox.com/users/3486688881/profile">『 ʀᴏʙʟᴏx 』</a> 
+  <a href="https://sogetsu.atabook.org/">『 ᴀᴛᴀʙᴏᴏᴋ 』</a> 
 </p>
   
 <p align="center">
