@@ -7,13 +7,13 @@
 <img width="1280" height="74" alt="image" src="https://github.com/user-attachments/assets/9c710908-5a29-44b1-93b4-b711409f91b8" /> <br/>
 
 <p align="center">
-  <a href="https://pronouns.cc/@yukio_vesta">『 ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ 』</a> ᛝ
+  <a href="https://pronouns.cc/@koujouu">『 ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ 』</a> ᛝ
   <a href="https://kouojuu.straw.page/">『 ꜱᴛʀᴀᴡᴘᴀɢᴇ 』</a> 
 </p>
 
 <p align="center">
   <a href="https://x.com/iikill_server">『 𝕏 』</a> ᛝ
-  <a href="https://www.tiktok.com/@vesta_yukio">『 ᴛɪᴋᴛᴏᴋ 』</a> ᛝ
+  <a href="https://guns.lol/koujouu">『 ɢᴜɴꜱ.ʟᴏʟ 』</a> ᛝ
   <a href="https://www.roblox.com/users/3486688881/profile">『 ʀᴏʙʟᴏx 』</a> 
 </p>
   
