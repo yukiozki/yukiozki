@@ -13,7 +13,7 @@
 
 <p align="center">
   <a href="https://x.com/iikill_server">『 𝕏 』</a> ᛝ
-  <a href="https://guns.lol/koujouu">『 ɢᴜɴꜱ.ʟᴏʟ 』</a> ᛝ
+  <a href="https://guns.lol/cozmez">『 ɢᴜɴꜱ.ʟᴏʟ 』</a> ᛝ
   <a href="https://sogetsu.atabook.org/">『 ᴀᴛᴀʙᴏᴏᴋ 』</a> 
 </p>
   
