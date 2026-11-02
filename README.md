@@ -12,7 +12,7 @@
   <table>
     <tr valign="top">
       <td>
-        <img src="https://i.postimg.cc/kM21s6Rb/tumblr-8b11f7c8afd157a7cf367bb5a823582a-e708e2b6-640.png" width="320" alt="hihihi">
+        <img src="https://i.postimg.cc/FFLJFNJ1/tumblr-bc7afd53686b8c82d4788e5e5b9d912e-667087b9-400.png" width="320" alt="hihihi">
         <br>
         <p align="center"><em>ᴊᴜꜱᴛ ʙᴇᴄᴀᴜꜱᴇ ɪ'ᴍ ᴅᴏɪɴɢ ᴡʜᴀᴛ ɪ ʟᴏᴠᴇ,</em></p>
         <p align="center"><em>ᴅᴏᴇꜱɴ'ᴛ ᴍᴇᴀɴ ɪᴛ'ꜱ ᴀʟᴡᴀʏꜱ ɢᴏɪɴɢ ᴛᴏ ʙᴇ ꜰᴜɴ.</em></p>
@@ -26,7 +26,7 @@
         <li><b>ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ</b> . ɢᴇɴᴅᴇʀꜰʟᴜɪᴅ . ʙɪꜱᴇxᴜᴀʟ . ᴄᴜᴘɪᴏʀᴏᴍᴀɴᴛɪᴄ. </li>
         <li> ︵  𝘑𝘰𝘴𝘦𝘪𝘮𝘶𝘬𝘦 𝘔𝘦𝘥𝘪𝘢 𝘌𝘯𝘵𝘩𝘶𝘴𝘪𝘢𝘴𝘵</li>
         </ul>
-        <h3>☆﹕𝚁𝚎𝚊𝚍 </h3>
+        <h3>☆﹕𝙱𝚈𝙵 </h3>
         <ul>
           <li><b>DNI:</b> Racist, Ableist, Homophobic, Proshipper, Darkshipper, Any alike</li>
           <li><b>IWC:</b> Ppl under 14 or over 20 ,, Unless I've interacted w u first</li>
@@ -35,3 +35,7 @@
     </tr>
   </table>
 </div>
+
+<img src="https://i.postimg.cc/QCTNX84h/tumblr-27e686ca1c2ab2352a0c4c51848e5415-27a6180d-2048.png" width="100%">
+
+<img src="https://i.pinimg.com/736x/e2/ab/bc/e2abbcb5cc83b5acd02bc8f6122ebed9.jpg" width="100%">
