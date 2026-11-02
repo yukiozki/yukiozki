@@ -1,31 +1,22 @@
-<img width="1280" height="91" alt="image" src="https://github.com/user-attachments/assets/3c30fe1c-5dde-4850-96d7-ba53b04ecf0f" />
-
-<img width="2756" height="1791" alt="image" src="https://github.com/user-attachments/assets/dfcc0ab4-a84f-4d9b-b81d-4644b62c287d" />
-
-<h2 align="center">❝ 𝘚𝘦𝘳𝘷𝘪𝘯𝘨 𝘰𝘵𝘩𝘦𝘳𝘴 𝘪𝘴 𝘢𝘯 𝘪𝘯𝘷𝘦𝘴𝘵𝘮𝘦𝘯𝘵 𝘪𝘯 𝘺𝘰𝘶𝘳𝘴𝘦𝘭𝘧 𝘸𝘪𝘵𝘩 𝘨𝘳𝘦𝘢𝘵 𝘳𝘦𝘵𝘶𝘳𝘯𝘴! ❞</h2>
-
-<img width="1280" height="74" alt="image" src="https://github.com/user-attachments/assets/9c710908-5a29-44b1-93b4-b711409f91b8" /> <br/>
+<img src="https://i.pinimg.com/736x/94/4b/8e/944b8e86b9c2bd46e2136a123cf5f1bc.jpg" width="100%">
 
 <p align="center">
-  <a href="https://pronouns.cc/@koujouu">『 ᴘʀᴏɴᴏᴜɴꜱ.ᴄᴄ 』</a> ᛝ
-  <a href="https://kouojuu.straw.page/">『 ꜱᴛʀᴀᴡᴘᴀɢᴇ 』</a> 
+  <a href="https://git.io/typing-svg">
+    <img src="https://readme-typing-svg.demolab.com?font=Lora&size=19&pause=1000&color=888888&width=435&lines=%E2%80%9CI+see...Each+of+those+lights+have+their+own+lives.%E2%80%9D" alt="Typing SVG">
+  </a>
 </p>
 
-<p align="center">
-  <a href="https://x.com/iikill_server">『 𝕏 』</a> ᛝ
-  <a href="https://guns.lol/cozmez">『 ɢᴜɴꜱ.ʟᴏʟ 』</a> ᛝ
-  <a href="https://sogetsu.atabook.org/">『 ᴀᴛᴀʙᴏᴏᴋ 』</a> 
-</p>
-  
-<p align="center">
+<img src="https://i.postimg.cc/QxDP0NQ5/tumblr-ea2523c401e71f693e4e95c78e69ae9e-fafb765a-2048.png" width="100%">
 
-<div align="center">
-<details>
-<summary><b>𝒮𝓅𝑒𝒸𝒾𝒶𝓁 𝑀𝑒𝓃𝓉𝒾𝑜𝓃𝓈 ｡‧⭑.ᐟ</b></summary>
-
-[@auraee](https://github.com/auraee), [@JUSTICEANDORDER](https://github.com/JUSTICEANDORDER), [@Saigemii](https://github.com/Saigemii)
-
-(u can also ask if ya wanna be added!)
-
-</details>
+<div align="left">
+  <table>
+    <tr>
+      <td>
+        <img src="https://i.postimg.cc/kM21s6Rb/tumblr-8b11f7c8afd157a7cf367bb5a823582a-e708e2b6-640.png" width="320" alt="Boxed Image">
+        <br>
+        <p align="center"><em>ᴊᴜꜱᴛ ʙᴇᴄᴀᴜꜱᴇ ɪ'ᴍ ᴅᴏɪɴɢ ᴡʜᴀᴛ ɪ ʟᴏᴠᴇ,</em></p>
+        <p align="center"><em>ᴅᴏᴇꜱɴ'ᴛ ᴍᴇᴀɴ ɪᴛ'ꜱ ᴀʟᴡᴀʏꜱ ɢᴏɪɴɢ ᴛᴏ ʙᴇ ꜰᴜɴ.</em></p>
+      </td>
+    </tr>
+  </table>
 </div>
